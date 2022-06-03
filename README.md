@@ -8,5 +8,3 @@ Aqui vocês terão TODAS as letras das musicas da banda MEGADETH! (Trabalho em P
 
 EN - Hello appreciators of the good and old Heavy Metal! 
 Here you will have ALL the lyrics of the songs of the band MEGADETH! (Work in Progress)
-
-Aqui vocês terão TODAS as letras das musicas da banda MEGADETH! (Trabalho em Progresso)
